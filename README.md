@@ -1,5 +1,5 @@
 
-# new world
+# New world
 
 
 I invite you to creat new ways our technology works. Create somthing that will beefit us in our new age. Create somthing that will help us explore new technology, something that will be like no other.
